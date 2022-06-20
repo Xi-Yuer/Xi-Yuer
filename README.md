@@ -1,4 +1,4 @@
 
 I'am fish 🐟
 
-Hope to be a qualified Coder!
+Hope to be a excellent Coder!
